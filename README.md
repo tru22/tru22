@@ -1,1 +1,1 @@
-nothing but stupidity
+Sandy Bridge Ojisan
